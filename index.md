@@ -13,3 +13,5 @@ An introduction to modern British literature through three literary masterpieces
 [Reading Schedule](./engl212_schedule.pdf)
 
 ### Daily Schedule (Kept Retrospectively) 
+
+[Daily Schedule](./daily_schedule_first_third.html) 
