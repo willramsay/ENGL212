@@ -14,4 +14,4 @@ An introduction to modern British literature through three literary masterpieces
 
 ### Daily Schedule (Kept Retrospectively) 
 
-[Daily Schedule](./daily_schedule_first_third.html) 
+A [daily summary](./daily_schedule_first_third.html) of our class sessions.
