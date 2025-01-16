@@ -1,4 +1,4 @@
-## Daily Schedule &mdash; Lord of the Rings
+## Daily Schedule &mdash; *The Lord of the Rings*
 
 ### Week 1 &mdash; Course Introduction and *The Lord of the Rings,* Bk. 1
 * #### Tuesday, Jan. 14 &mdash; Course introduction
