@@ -8,4 +8,6 @@
 
 ### Reading and Exam Schedule
 
+[Reading Schedule](./engl212_schedule.pdf)
+
 ### Daily Schedule (Kept Retrospectively) 
