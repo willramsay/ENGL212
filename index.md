@@ -6,6 +6,8 @@
 
 ### Overview
 
+An introduction to modern British literature through three literary masterpieces: *The Lord of the Rings*, *Middlemarch*, and *Don Juan*. 
+
 ### Reading and Exam Schedule
 
 [Reading Schedule](./engl212_schedule.pdf)
