@@ -14,5 +14,8 @@
 
 ### Week 3 &mdash; *The Lord of the Rings*, Bks. 3 & 4
 * #### Tuesday, Jan. 28 &mdash; The third book of *The Lord of the Rings*
+  &mdash; The structure of the third book &mdash; Boromir and his significance (the power of the ring, the possible triumph of good, Aragorn: "You have conquered. Few have gained such a victory", Gandalf: "But he escaped in the end. I am glad. It was not in vain that the young hobbits came with us, if only for Boromir's sake", self-sacrifice [Gandalf and the Balrog, the diminishing of the Elves (p. 269, p. 365), the last march of the Ents (p.486)], choice) &mdash; the interplay between choice and providence (Gandalf's errors, Aragorn's errors, Saruman's evil intentions turned to good) &mdash; humility briefly discussed &mdash; hope, with particular reference to Aragorn and Gandalf &mdash; Legolas's "knife-work" and the horrors of war (Tolkien in foreward: "By 1918 all but one of my close friends were dead.")
+
+Left undiscussed: The Ents and Isengard (continue discussion of natural world, imagery of industrialization); The White Rider chapter needs to be discussed in depth.
   
 * #### Thursday, Jan. 30 &mdash; The fourth book of *The Lord of the Rings*
