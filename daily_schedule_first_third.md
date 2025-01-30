@@ -19,3 +19,11 @@
 Left undiscussed: The Ents and Isengard (continue discussion of natural world, imagery of industrialization); The White Rider chapter needs to be discussed in depth.
   
 * #### Thursday, Jan. 30 &mdash; The fourth book of *The Lord of the Rings*
+  &mdash; The structure of the fourth book &mdash; Faramir and the Ring &mdash; &mdash; Sam and the "battle of Men against Men" &mdash; Tolkien's racialized imagination (?) &mdash; Sam's love for Frodo ("I love him," "In his lap lay Frodo's head, drowned deep in sleep; upon his white forehead lay one of Sam's brown hands, and the other lay softly upon his master's breast," "fallen mate") &mdash; Sam as servant vs. Gollum's servility ("dog") &mdash; A digression on the history of emotional expression &mdash; Frodo's laughter and Sam's cheerfulness &mdash; Hope, once more
+
+  Left undiscussed: Frodo's love for Sam! ("But Samwise Gamgee, my dear hobbit – indeed, Sam my dearest hobbit, friend of friends") &mdash; recurring themes of the significance of choice, and error (Frodo: "all my choices have proved ill"; Sam: "I got it all wrong") &mdash; evil turned to good ("To have found it turns evil to great good")
+
+### Week 4 &mdash; *The Lord of the Rings*, Bks. 5 & 6 
+
+* #### Tuesday, Feb. 4 &mdash; The fifth book of *The Lord of the Rings*
+* #### Thursday, Feb. 6 &mdash; The sixth book of *The Lord of the Rings* 
