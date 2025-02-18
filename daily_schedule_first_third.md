@@ -1,4 +1,4 @@
-## Daily Schedule &mdash; *The Lord of the Rings*
+## Daily Schedule 
 
 ### Week 1 &mdash; Course Introduction and *The Lord of the Rings,* Bk. 1
 * #### Tuesday, Jan. 14 &mdash; Course introduction
@@ -33,3 +33,8 @@
 * #### Thursday, Feb. 6 &mdash; The sixth book of *The Lord of the Rings*
   &mdash; Sam's perspective &mdash; Sam as gardener and cultivated nature in *The Lord of the Rings* &mdash; hands (Sam and Frodo; Gollum; Isildur) &mdash; Sam, Frodo and touch (grounding? romantic? caretaking? friendship?) &mdash; digression on *Moby-Dick* and Abraham Lincoln and Joshua Speed &mdash; Gollum and the Ring &mdash; The nature of evil in *The Lord of the Rings* (p. 914) and Augustine's privation theory of evil &mdash; *The Lord of the Rings* as a Christian book &mdash; Optimism and Christian comedy (Dante mentioned); impossibility, perhaps, of Christian tragedy &mdash; Tolkien and allegory once more &mdash; exam prep
  
+### Week 5 &mdash; Exams
+
+### Week 6 &mdash; *Middlemarch*, Bks. 1 & 2
+* #### Tuesday, Feb. 18 &mdash; The first book of *Middlemarch*
+  &mdash; Major differences from *The Lord of the Rings* (realist or plausible novel; emphasis on character, psychological and social; lower stakes; difficulty of the language) &mdash; close reading "The Prelude" &mdash; The epigraphs &mdash; close reading the first half of the first chapter &mdash; Casaubon &mdash; Dorothea's love for and marriage to Casaubon &mdash; social reaction to Dorothea's engagement, marriage &mdash; novelistic convention and Dorothea's marriage &mdash; the title "Middlemarch: A Study of Provincial Life" 
