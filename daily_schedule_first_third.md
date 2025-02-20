@@ -38,3 +38,5 @@
 ### Week 6 &mdash; *Middlemarch*, Bks. 1 & 2
 * #### Tuesday, Feb. 18 &mdash; The first book of *Middlemarch*
   &mdash; Major differences from *The Lord of the Rings* (realist or plausible novel; emphasis on character, psychological and social; lower stakes; difficulty of the language) &mdash; close reading "The Prelude" &mdash; The epigraphs &mdash; close reading the first half of the first chapter &mdash; Casaubon &mdash; Dorothea's love for and marriage to Casaubon &mdash; social reaction to Dorothea's engagement, marriage &mdash; novelistic convention and Dorothea's marriage &mdash; the title "Middlemarch: A Study of Provincial Life" 
+* #### Thursday, Feb. 20 &mdash; The second book of *Middlemarch*
+ &mdash; Talk about *Lord of the Rings* exam &mdash; Summary of book 2 of *Middlemarch* &mdash; briefly mentioned: Dorothea's perception of Casaubon vs. society's perception; Dorothea's realization that Casaubon "had an equivalent centre of self, whence the lights and shadows must always fall with a certain difference" &mdash; the title "Old and Young" 
