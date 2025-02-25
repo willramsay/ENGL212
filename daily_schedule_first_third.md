@@ -40,3 +40,8 @@
   &mdash; Major differences from *The Lord of the Rings* (realist or plausible novel; emphasis on character, psychological and social; lower stakes; difficulty of the language) &mdash; close reading "The Prelude" &mdash; The epigraphs &mdash; close reading the first half of the first chapter &mdash; Casaubon &mdash; Dorothea's love for and marriage to Casaubon &mdash; social reaction to Dorothea's engagement, marriage &mdash; novelistic convention and Dorothea's marriage &mdash; the title "Middlemarch: A Study of Provincial Life" 
 * #### Thursday, Feb. 20 &mdash; The second book of *Middlemarch*
  &mdash; Talk about *Lord of the Rings* exam &mdash; Summary of book 2 of *Middlemarch* &mdash; briefly mentioned: Dorothea's perception of Casaubon vs. society's perception; Dorothea's realization that Casaubon "had an equivalent centre of self, whence the lights and shadows must always fall with a certain difference" &mdash; the title "Old and Young" 
+
+ ### Week 7 &mdash; *Middlemarch*, Bks. 3 & 4
+ * #### Tuesday, Feb. 25 &mdash; The third book of *Middlemarch*
+   &mdash; Returned second half of *Lord of the Rings* exam &mdash; Summary of book 3 of *Middlemarch* &mdash; In small groups, examination of first three paragraphs of chapter 29 &mdash; discussion of significance of those paragraphs (some suggestions: socety's expectations of men, social position of women, the narrator as character) &mdash; comparison of passage with passage mentioned in last class: Dorothea's realization that Casaubon "had an equivalent centre of self, whence the lights and shadows must always fall with a certain difference"
+   
