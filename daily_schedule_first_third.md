@@ -44,4 +44,11 @@
  ### Week 7 &mdash; *Middlemarch*, Bks. 3 & 4
  * #### Tuesday, Feb. 25 &mdash; The third book of *Middlemarch*
    &mdash; Returned second half of *Lord of the Rings* exam &mdash; Summary of book 3 of *Middlemarch* &mdash; In small groups, examination of first three paragraphs of chapter 29 &mdash; discussion of significance of those paragraphs (some suggestions: socety's expectations of men, social position of women, the narrator as character) &mdash; comparison of passage with passage mentioned in last class: Dorothea's realization that Casaubon "had an equivalent centre of self, whence the lights and shadows must always fall with a certain difference"
-   
+* #### Thursday, Feb. 27 &mdash; The fourth book of *Middlemarch*
+  &mdash; Drew an extended family tree of the characters in *Middlemarch*, including non-familial relations (e.g. Caleb working for Brooke and Chettam; Lydgate as Casaubon's doctor) &mdash; The three love problems (Causabon & Dorothea, Lydgate & Rosamond, Will and Dorothea) &mdash; The nature of Will's relationship with Dorothea &mdash; "Ardent" and "ardour" as key words in *Middlemarch* - Dorothea, Lydgate, and Will all described as ardent, having ardor: what unites these characters? How are these characters related to the character type delineated in the Prelude, in which "ardour" and "ardent" also appear? &mdash; What do we make of Dorothea describing Causabon's labor as "ardent"? &mdash; Briefly mentioned: Joshua Riggs, the Dagleys, Brooke as landlord, Brooke's political aspirations
+
+Left undiscussed: Ch. 41 on Casaubon ("I know no speak so troublesome as self." Compare with passage from ch. 29 "to be present at this great spectacle of life and never to be liberated from a small hungry shivering self.") 
+
+Reminder to reread the Prelude, ch. 10 on Will and ch. 15 on Lydgate.
+
+
