@@ -4,7 +4,7 @@
 * #### Tuesday, Jan. 14 &mdash; Course introduction
   &mdash; Syllabus and course overview &mdash; A brief history of English literature from "Cædmon's Hymn" to *The Lord of the Rings*; &mdash; Summary of "Riddles in the Dark" chapter from *The Hobbit*
 * #### Thursday, Jan. 16 &mdash; The first book of *The Lord of the Rings*
-  &mdash; The structure of the first book (Shire, Bombadil, and Strider sections) &mdash; The history and power of the ring &mdash; The mysterious allusions to fate and providence (?) &mdash; Tom Bombadil and the power of command &mdash; Tolkien's narrative technique and some of the problems he sets himself (Tom's power; Frodo's early failure) &mdash; Tolkien's realism &mdash; Tolkien's "Foreword to the second edition"  
+  &mdash; The structure of the first book (Shire, Bombadil, and Strider sections) &mdash; The history and power of the ring    &mdash; The mysterious allusions to fate and providence (?) &mdash; Tom Bombadil and the power of command &mdash;       Tolkien's narrative technique and some of the problems he sets himself (Tom's power; Frodo's early failure) &mdash; Tolkien's realism &mdash; Tolkien's "Foreword to the second edition"  
 
 ### Week 2 &mdash; *The Lord of the Rings*, Bk. 2 & Practice Exam
 * #### Tuesday, Jan. 21 &mdash; The second book of *The Lord of the Rings*
@@ -39,7 +39,7 @@
 * #### Tuesday, Feb. 18 &mdash; The first book of *Middlemarch*
   &mdash; Major differences from *The Lord of the Rings* (realist or plausible novel; emphasis on character, psychological and social; lower stakes; difficulty of the language) &mdash; close reading "The Prelude" &mdash; The epigraphs &mdash; close reading the first half of the first chapter &mdash; Casaubon &mdash; Dorothea's love for and marriage to Casaubon &mdash; social reaction to Dorothea's engagement, marriage &mdash; novelistic convention and Dorothea's marriage &mdash; the title "Middlemarch: A Study of Provincial Life" 
 * #### Thursday, Feb. 20 &mdash; The second book of *Middlemarch*
- &mdash; Talk about *Lord of the Rings* exam &mdash; Summary of book 2 of *Middlemarch* &mdash; briefly mentioned: Dorothea's perception of Casaubon vs. society's perception; Dorothea's realization that Casaubon "had an equivalent centre of self, whence the lights and shadows must always fall with a certain difference" &mdash; the title "Old and Young" 
+  &mdash; Talk about *Lord of the Rings* exam &mdash; Summary of book 2 of *Middlemarch* &mdash; briefly mentioned: Dorothea's perception of Casaubon vs. society's perception; Dorothea's realization that Casaubon "had an equivalent centre of self, whence the lights and shadows must always fall with a certain difference" &mdash; the title "Old and Young" 
 
  ### Week 7 &mdash; *Middlemarch*, Bks. 3 & 4
  * #### Tuesday, Feb. 25 &mdash; The third book of *Middlemarch*
@@ -47,8 +47,8 @@
 * #### Thursday, Feb. 27 &mdash; The fourth book of *Middlemarch*
   &mdash; Drew an extended family tree of the characters in *Middlemarch*, including non-familial relations (e.g. Caleb working for Brooke and Chettam; Lydgate as Casaubon's doctor) &mdash; The three love problems (Causabon & Dorothea, Lydgate & Rosamond, Will and Dorothea) &mdash; The nature of Will's relationship with Dorothea &mdash; "Ardent" and "ardour" as key words in *Middlemarch* - Dorothea, Lydgate, and Will all described as ardent, having ardor: what unites these characters? How are these characters related to the character type delineated in the Prelude, in which "ardour" and "ardent" also appear? &mdash; What do we make of Dorothea describing Causabon's labor as "ardent"? &mdash; Briefly mentioned: Joshua Riggs, the Dagleys, Brooke as landlord, Brooke's political aspirations
 
-Left undiscussed: Ch. 41 on Casaubon ("I know no speak so troublesome as self." Compare with passage from ch. 29 "to be present at this great spectacle of life and never to be liberated from a small hungry shivering self.") 
+   Left undiscussed: Ch. 41 on Casaubon ("I know no speak so troublesome as self." Compare with passage from ch. 29 "to be present at this great spectacle of life and never to be liberated from a small hungry shivering self.") 
 
-Reminder to reread the Prelude, ch. 10 on Will and ch. 15 on Lydgate.
+   Reminder to reread the Prelude, ch. 10 on Will and ch. 15 on Lydgate.
 
 
