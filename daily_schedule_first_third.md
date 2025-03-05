@@ -55,5 +55,5 @@
 * #### Tuesday, March 4 &mdash; The fifth book of *Middlemarch*
     Brief overview of "The Dead Hand" &mdash; Based on the observation in ch. 15 that "character too is a process and unfolding," we examined how two characters have unfolded so far: Will Ladislaw and Tertius Lydgate. In small groups, students considered how Ladislaw was described in ch. 10 and Lydgate in ch. 15. They then considered how these characters had unfolded by Book Five. Some of the dangers forecast for Lydgate in ch. 15 threaten to become realized--Rosamond dislikes Lydgate's medical career and Lydgate is in debt. As for Ladislaw, particular attention was paid to a passage (pp. 432-33 in our edition) in which "he was beginning thoroughly to like the work" and had given up, at least for a moment, "dilettantism."
 
-Students urged to pay close attention to the description of Dorothea's changing life, p. 433. 
+  Students urged to pay close attention to the description of Dorothea's changing life, p. 433. 
 
