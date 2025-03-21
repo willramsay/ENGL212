@@ -60,6 +60,8 @@
 * #### Thursday, March 6 &mdash; The sixth book of *Middlemarch*
     Continuing our theme of "unfolding" character, we looked at Dorothea's evolving relationship with Will Ladislaw. In small groups, students examined passages on pages 461, 507, 514-15, and 596 to determine how and why Dorothea's feelings towards Ladislaw have changed. &mdash; Brief mention was made of two further ideas: the theme of characters misunderstanding one another: Dorothea and Will, Lydgate and Rosamond (the repeated comments that Will understands Lydgate better than Rosamond does), Fred and Farebrother--does Fred misunderstand Mary?--perhaps Bulstrode and Will. The Garths seen as a couple who understands one another. &mdash; Second idea: "egoism," like "ardent" and "ardor", is a key word that picks out a group of characters who share certain traits: what are these traits? What does Eliot have to say about egoism? "Self" a related key word. How do "self" and "egoism" relate to "ardent" and "ardor"? 
 
+* ### Week 9 &mdash; *Middlemarch*, Bks. 7 & 8, Finale
+
 * #### Tuesday, March 11 &mdash; The seventh book of *Middlemarch*
     Chapter by chapter overview of "The Two Temptations" &mdash; A discussion of the two temptations: Lydgate's gambling and Bulstrode's temptation to murder (?) &mdash; Rosamond's character discussed at length: from her ennui to her beautiful neck
 
